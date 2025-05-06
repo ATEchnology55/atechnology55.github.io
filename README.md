@@ -1,10 +1,7 @@
-# ATEechnology
 
-Merhabalar, Biz Atilla, Toprak ve Eymen olarak 12 yaşında proje yapan 3 gençiz, bize yardım ederseniz seviniriz
+[NO LONGER SUPPORT](atechnology56.github.io)
 
-https://chat.whatsapp.com/GGtZuAfBGxX2ISZ5Gp8oqI
-
-Projelerimiz:
+Arşiv:
 
 [TEES](https://atechnology55.github.io/TEES)
 
